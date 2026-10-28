@@ -1,1 +1,0 @@
-Screenshots taken during lab
